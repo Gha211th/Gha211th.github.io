@@ -1,12 +1,8 @@
 ---
-title: First experience:)
-date: 2026-05-04 10:00:00 +0700
-categories: [sharing]
-tags: [myself]
+title: Hello World
+date: 2026-05-04 14:00:00 +0700
+categories: [Update]
+tags: [test]
 ---
 
-## Pendahuluan
-hello there, it was my first experience using this theme
-
-### Sub-heading Contoh
-my first commit with jekkly
+Hello world, this is my first post!
