@@ -19,5 +19,5 @@ When i start to stop play any game nobody cares but the problem starts when i en
 Honestly, i just feel free, i know i can spend a lot time of holiday to play any game that i want, but, now i just thinking why do i play game?, i would say like 'i better do something else that more useful than this', i would say that 'i does'nt need game anymore', nvm about that, i just enjoy my live, be a kind person also learn something that can be useful my personality, i can say i thing that i realise is about how i can control my desire, i mom just teach me how can i control my desire more good than anyone (maybe).
 
 ## Conclusion
-I don't have anything to talk here, i just wanna say thank's for who ever read this article, u can take the point of this article btw, maybe just that, i just wanna talk but i'm in the class and locked with the material, never mind, thanks to yall:)
+I don't have anything to talk here, i just wanna say thank's for who ever read this article, u can take the point of this article btw, maybe just that, i just wanna talk but i'm in the class and locked with the material, never mind, thanks to yall:p
 
