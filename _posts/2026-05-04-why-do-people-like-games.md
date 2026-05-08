@@ -1,7 +1,7 @@
 ---
 title: Why Do People Love Gaming?
 date: 2026-05-04 14:00:00 +0700
-categories: [Sharing, Feeling]
+categories: [Sharing]
 tags: [Personal Life]
 ---
 
